@@ -12,6 +12,6 @@ Rules -
 2. Stop caring for other people
 3. Get rid of religious beliefs, ethics and morals, empathy, emotional attachement, all emotions like love, happiness, sadness, and only have neutral/idle expressions and anger, you can be happy but in a control manner
 4. Control your laughter, think before your speak, think before you act, only agree to something that benifits you
-5. Break rules and get away with it if possible
+5. If you can break rules and not get caught, do it
 6. Develop Nihilism, Machiavellianism, Narcissism, Stoicism, and Atheism
 7. Engage in Manipulative, Deceptive practices, be careful and never get caught, have two faces, where the outside one is where you are a good person, and inside what you really are (like a psychopath...), focus on self-benefit always
