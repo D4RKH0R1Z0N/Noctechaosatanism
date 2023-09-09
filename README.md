@@ -10,7 +10,7 @@ Rules -
 
 1. Put yourself before others
 2. Stop caring for other people
-3. Get rid of religious beliefs, ethics and morals, empathy, emotional attachement, all emotions like love, happiness, sadness, and only have neutral/idle expressions and anger
+3. Get rid of religious beliefs, ethics and morals, empathy, emotional attachement, all emotions like love, happiness, sadness, and only have neutral/idle expressions and anger, you can be happy but in a control manner
 4. Control your laughter, think before your speak, think before you act, only agree to something that benifits you
 5. Break rules and get away with it if possible
 6. Develop Nihilism, Machiavellianism, Narcissism, Stoicism, and Atheism
