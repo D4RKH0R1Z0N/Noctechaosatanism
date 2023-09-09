@@ -4,9 +4,9 @@ This term combines "nocte" (night, like darkness and unknown/mystery), "chaos," 
 
 Note: Definition of Satan used here is not the "Devil" or "Evil Entity" but as the Self and A symbol of Freedom, and viewing one as their own god, worsphing themself and in an Athestic point of view, no rituals or black magic but focused on self-improvement. Not a religion but a group of philosophical and ideological beliefs. 
 
-[ ! Philosophical Idea, Under Development ! ]
+## [ ! Philosophical Idea, Under Development ! ]
 
-Rules -
+### Rules -
 
 1. Put yourself before others
 2. Stop caring for other people
@@ -16,7 +16,7 @@ Rules -
 6. Develop Nihilism, Machiavellianism, Narcissism, Stoicism, and Atheism
 7. Engage in Manipulative, Deceptive practices, be careful and never get caught, have two faces, where the outside one is where you are a good person, and inside what you really are (like a psychopath...), focus on self-benefit always
 
-Mindset -
+### Mindset -
 
 1. Embrace fear
 2. Don't be scared of gore, ghosts or anything else...
