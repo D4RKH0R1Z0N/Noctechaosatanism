@@ -15,3 +15,11 @@ Rules -
 5. If you can break rules and not get caught, do it
 6. Develop Nihilism, Machiavellianism, Narcissism, Stoicism, and Atheism
 7. Engage in Manipulative, Deceptive practices, be careful and never get caught, have two faces, where the outside one is where you are a good person, and inside what you really are (like a psychopath...), focus on self-benefit always
+
+Mindset -
+
+1. Embrace fear
+2. Don't be scared of gore, ghosts or anything else...
+3. Quit addictions
+4. If it gives you happiness (even extreme stuff), do it
+5. Don't give out opinions and advice, unless your asked to
